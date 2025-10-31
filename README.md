@@ -1,0 +1,2 @@
+# Partffolya
+layihalar jamlanmasi
